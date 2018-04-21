@@ -12,7 +12,7 @@ If you are willing to spend a little extra, the [Kryptonite New York Fahgettabou
 
 ### Cover
 
-Simple, cheap, waterproof. Has a hole for a lock, and comes with a wide end for your handles. The (Ohuhu waterproof bicycle cover)[https://www.amazon.com/gp/product/B018Q6RML4] is the perfect size for a Motobecane 50 or 40.
+Simple, cheap, waterproof. Has a hole for a lock, and comes with a wide end for your handles. The [Ohuhu waterproof bicycle cover](https://www.amazon.com/gp/product/B018Q6RML4) is the perfect size for a Motobecane 50 or 40.
 
 ##### Tips
 
@@ -20,12 +20,12 @@ Simple, cheap, waterproof. Has a hole for a lock, and comes with a wide end for 
 
 ### Mirrors
 
-Most bicycle mirrors will lose their rigidity over time and become useless. A good set of mirrors should retain rigidity over time, have a wide field of view, and not get in your way. These (adjustable 8" chrome mirrors)[https://www.treatland.tv/ProductDetails.asp?ProductCode=chrome-adjustable-8in-mirror] strike a nice balance of being useful and not getting in your way - plus they look really nice and have a good classic look to them.
+Most bicycle mirrors will lose their rigidity over time and become useless. A good set of mirrors should retain rigidity over time, have a wide field of view, and not get in your way. These [adjustable 8" chrome mirrors](https://www.treatland.tv/ProductDetails.asp?ProductCode=chrome-adjustable-8in-mirror) strike a nice balance of being useful and not getting in your way - plus they look really nice and have a good classic look to them.
 
 ##### Tips
 
 - If the vibrations of your bike make it hard to see out of your mirror, you can put a piece of rubber hose between the.
-- If you find that the mirror to handlebar attachment is loosening up over time, you can use (red loctite)[https://www.amazon.com/Loctite-Threadlocker-Red-0-20-209741/dp/B000FP8EUS] to keep them in place.
+- If you find that the mirror to handlebar attachment is loosening up over time, you can use [red loctite](https://www.amazon.com/Loctite-Threadlocker-Red-0-20-209741/dp/B000FP8EUS) to keep them in place.
 
 ### Grill
 

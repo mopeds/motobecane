@@ -29,7 +29,7 @@ Most Motobecane tanks (50, 40 models) are 0.75 gallons. If you find yourself on 
 
 - Walk it to a gas station
 - Go inside and grab a small bottle of 2 stroke oil
-- Fill your tank up *almost all the way* with gas (you need to leave enough room for the oil)
+- Fill your tank up **almost all the way** with gas (you need to leave enough room for the oil)
 - Eyeball measure 1.92oz of oil and pour it in
 - Put your bike on the center stand and shake the crap out of it so the oil and gas mix properly
 - All done!
