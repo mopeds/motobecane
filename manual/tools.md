@@ -8,6 +8,7 @@
 - [Screw Driver](https://www.amazon.com/Stanley-69-189-Ratcheting-Multi-Bit-Screwdriver/dp/B002I3TDP0)
 - [B5HS Spark Plugs](https://www.amazon.com/NGK-B5HS-Standard-Spark-Plug/dp/B000F0BYZA)
   - If your bike is upgraded to a 74cc, you should use the [B7HS plug](https://www.amazon.com/NGK-5110-B7HS-Standard-Spark/dp/B01DMFHO2G/ref=sr_1_1?ie=UTF8&qid=1524269504&sr=8-1&keywords=b7hs) instead
+- [Tool Roll](https://www.amazon.com/Carhartt-Legacy-Tool-Roll-Black/dp/B00ES8L3V0)
 
 ## Advanced
 
