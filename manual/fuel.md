@@ -10,7 +10,7 @@
 
 - Only use oil meant for 2 strokes, or you're going to ruin your bike.
 - Never run your bike without oil or it will overheat and blow up.
-- Never run your bike with too much oil, or it will
+- Never run your bike with too much oil, or it will "run rich" (use too much fuel, foul spark plugs quickly, run poorly).
 
 ## Ratio
 
